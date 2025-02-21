@@ -10,7 +10,7 @@ Before proceeding, make sure you have gone through the link for a surprise. Coul
 
 ## Now, complete these steps: <br>
 
-1️⃣ Go to Play Store on your Phone
+1️⃣ Go to Play Store on your Phone <br>
 2️⃣ Install a Scanner App on your phone <br>
 3️⃣ Scan where the QR redirects you <br>
 4️⃣ After scanning, take a screenshot and WhatsApp Harshita <br>
