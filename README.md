@@ -6,7 +6,7 @@ Not making this anymore cringe, here is the link: [https://shorturl.at/DTJKz](ht
 . <br>
 . <br>
 . <br>
-Before proceeding, make sure you have gone through the link for a surprise. Couldn't implement it in a better way. 😏 <br>
+Before proceeding, make sure you have gone through the link for a surprise. Couldn't implement it in a better way. 🙏 <br>
 
 ## Now, complete these steps: <br>
 
